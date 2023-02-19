@@ -1,0 +1,1 @@
+# slake-net-crypto-fivem
